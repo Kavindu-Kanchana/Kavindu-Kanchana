@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kavindu-Kanchana, an undergraduate student at SLIIT.
+- 👀 I have a strong passion for coding and love exploring new trends on the internet.
+- 🌱 Currently, I'm diving deep into my IT studies and picking up new skills along the way.
+- 💞️ I'm always on the lookout for exciting projects and collaborations that help me improve my coding abilities.
+- ⚡ Fun fact: I'm always curious about the newest developments and trends in technology !
